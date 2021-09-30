@@ -1,0 +1,3 @@
+-neb#1675 on Discord
+-I’m interested in videogame hacks
+-I’m currently learning how to survive school
